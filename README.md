@@ -1,3 +1,5 @@
+<img width="989" height="130" alt="d9gl4o" src="https://github.com/user-attachments/assets/0cc3d7ce-ffd2-44d5-ba12-89873f246a22" />
+
 <img width="1920" height="806" alt="1" src="https://github.com/user-attachments/assets/7f56cc1a-4eb4-4a6c-b1bb-51bd72892041" />
 
 ![](https://komarev.com/ghpvc/?username=TheUnthinkableMiracle&label=Columbina_Lovers&color=ff69b4)
@@ -9,7 +11,7 @@
 
 ![isz36n](https://github.com/user-attachments/assets/10bb560a-5eda-4e4f-98dd-26f560d04c79) ୭🍰I love many games like PT n Roblox✧˚. ᵎᵎ
 
-<img width="1000" height="250" alt="1" src="https://github.com/user-attachments/assets/3f42a597-89f8-4816-b89c-1fdb16ba92af" />
+<img width="1280" height="361" alt="eb0q7s" src="https://github.com/user-attachments/assets/4806ea2c-fa1c-4f2f-a7e3-f14c38949c2c" />
 
 ![suf902](https://github.com/user-attachments/assets/d5079580-3fbe-40fc-b9b4-c6bc776a0437) ⋆.˚🦋My people: S💍-E🩵-A🫧-P🎧⋆
 
@@ -17,6 +19,8 @@
 
 
 <img width="1920" height="576" alt="1" src="https://github.com/user-attachments/assets/19e5df51-1d68-4428-922e-a0f8797c6091" />
+
+<img width="989" height="117" alt="z3g4ua" src="https://github.com/user-attachments/assets/a794d356-f8f1-47e3-9eae-d55ad8f3ada8" />
 
 ______________________________________________________________________________________________________________________________
 
