@@ -11,7 +11,7 @@
 
 <img width="1000" height="250" alt="1" src="https://github.com/user-attachments/assets/3f42a597-89f8-4816-b89c-1fdb16ba92af" />
 
-![gkekol](https://github.com/user-attachments/assets/3d3fa2a0-0fb9-4392-b875-d1eee59b56fb) Yap Yap
+![suf902](https://github.com/user-attachments/assets/d5079580-3fbe-40fc-b9b4-c6bc776a0437) Yap Yap
 
 ![nwsug6](https://github.com/user-attachments/assets/dc484060-00f6-448b-9e09-4dc978131d00) Yap Yap
 
