@@ -14,7 +14,7 @@
 
 <img width="1280" height="219" alt="25034809" src="https://github.com/user-attachments/assets/9fcca87d-3ab4-48c8-9caf-6c151ea0df2f" />
 
-![suf902](https://github.com/user-attachments/assets/d5079580-3fbe-40fc-b9b4-c6bc776a0437) ⋆.˚🦋My people: S💍-E🩵-A🫧-P🎧⋆
+![suf902](https://github.com/user-attachments/assets/d5079580-3fbe-40fc-b9b4-c6bc776a0437) ⋆.˚🦋My people: S💍-E🩵-A🫧-E🎧⋆
 
 ![yaemht](https://github.com/user-attachments/assets/d6745467-9a07-4298-97e4-a24a3dba9369) ⸜(｡˃ ᵕ ˂ )⸝♡ Nothing else to say! have an Amazing day!!
 
