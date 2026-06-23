@@ -32,10 +32,11 @@ ________________________________________________________________________________
 
 <p align="center">
 Credits to : 
+ 
  <p align="center">
  @abudasima on Tumblr for the Columbina Template
- 
-______________________________________________________________________________________________________________________________
 
-<p align="center">
-THIS REPOSITORY WAS MADE BY @PinkiePieExplosion!
+<div align="center">
+  
+Credit to [Shepherd](https://github.com/PinkiePieExplosion) for this ReadMe creation.
+</div>
